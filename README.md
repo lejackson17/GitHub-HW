@@ -1,2 +1,0 @@
-Lainey Jackson
-13
